@@ -1,2 +1,2 @@
-# Krishna_UI_UX_Resume
+# Krishna_UI_UX_Designer_Resume
 Resume
